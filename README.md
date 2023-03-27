@@ -1,13 +1,13 @@
-# Alan George
-### Full Stack Software Engineer 
-#### *DoD Secret Security Clearance*
+# Ricky Damazio
+### Full Stack Software Engineer | Marine Corps Veteran
+#### *DoD Top-Secret Security Clearance*
 
 ---
 
 ### Contact  
-Phone: (321) 323-9075  
-E-mail: alan.e.george86@gmail.com  
-LinkedIn: [in/alan-e-george/](http://www.linked.com/in/alan-e-george/)  
+Phone: 910-787-1570 
+E-mail: rickytyler93@gmail.com 
+LinkedIn: [in/ricky-damazio-856350157](https://www.linkedin.com/in/ricky-damazio-856350157/)
 
 ---
 ### Skills
